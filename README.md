@@ -1,0 +1,1 @@
+# CodeClauseInternship_Speed_typing_test
